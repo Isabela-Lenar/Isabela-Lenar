@@ -1,0 +1,4 @@
+- 👋 Olá, me chamo @Isabela-Lenar
+- 👀 Estou em busca de uma oportunidade de emprego na área da tecnologia.
+- 🌱 Estou cursando a faculdade de Analise e Desenvolvimento de Sistemas
+- 📫 Como me achar: https://www.linkedin.com/in/isabela-lenartovicz-16224b309/
